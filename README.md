@@ -1,1 +1,1 @@
-Hi, I'm aydennnrw. Welcome to my GitHub Repository!
+Hi, I'm aydenrw. Welcome to my GitHub!
